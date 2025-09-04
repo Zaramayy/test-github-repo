@@ -12,3 +12,8 @@ my favourite artists are:
 - Jazmine Sullivan
 
 I miss my cats Mitsy, Midnight and Mardy they are the best
+
+:mask:
+:relieved:	
+:smirk:	
+:face_with_open_eyes_and_hand_over_mouth:	
