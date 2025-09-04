@@ -10,3 +10,5 @@ my favourite artists are:
 - Justin Bieber 
 - Lauryn Hill
 - Jazmine Sullivan
+
+I miss my cats Mitsy, Midnight and Mardy
