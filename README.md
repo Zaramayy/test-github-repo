@@ -11,4 +11,4 @@ my favourite artists are:
 - Lauryn Hill
 - Jazmine Sullivan
 
-I miss my cats Mitsy, Midnight and Mardy
+I miss my cats Mitsy, Midnight and Mardy they are the best
